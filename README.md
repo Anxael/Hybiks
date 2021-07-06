@@ -1,4 +1,4 @@
-![Showdownvipbanner](https://cdn.discordapp.com/attachments/850160961863942174/861969141534425128/showdown_vip.png)
+![Banner](https://cdn.discordapp.com/attachments/850160961863942174/854393009172774942/the_icosphere.png)
 
 > [Twitter if you wanna follow ig](https://twitter.com/AniaelLC)
 
