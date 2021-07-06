@@ -1,4 +1,4 @@
-![AniaelBanner](https://cdn.discordapp.com/attachments/729394085538037847/843548166686769162/Aniael_aniael.png)
+![Showdownvipbanner](https://cdn.discordapp.com/attachments/850160961863942174/861969141534425128/showdown_vip.png)
 
 > [Twitter if you wanna follow ig](https://twitter.com/AniaelLC)
 
