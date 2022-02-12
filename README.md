@@ -1,4 +1,4 @@
-![Banner](https://media.discordapp.net/attachments/850160961863942174/900415036294586398/im_too_lazy_to_fucking_fix_my_posing_work_so_there_you_go_lmao.png?width=1166&height=493)
+![Banner](https://cdn.discordapp.com/attachments/850160961863942174/942176549921247283/the_summit.png)
 
 > I'm Aniael, a Colombian 3d artist, music composer, programmer (sometimes), student, and human (sometimes).
 
