@@ -4,6 +4,8 @@ I'm Hybiks. I'm a Colombian music composer and 3d artist (not confident about co
 
 > I've never taken one of those personality tests so idk 
 
+> <sub><sup>Asexual</sup></sub>
+
 > I'm currently playing: [Death Stranding](https://store.steampowered.com/app/1850570/DEATH_STRANDING_DIRECTORS_CUT/), [Counter-Strike: Global Offensive](https://store.steampowered.com/app/730/CounterStrike_Global_Offensive/), [Blender (I know it's not a game but shut up)](https://store.steampowered.com/app/365670/Blender/)
 
 > My Discord tag is __Hybiks#8952__. Feel free to add me if you want <sub><sup>(unless you're that one person I really hate and love at the same time I don't think I quite want to talk to you yet)</sup></sub>.
