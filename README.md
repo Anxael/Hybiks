@@ -1,9 +1,13 @@
-![Banner](https://cdn.discordapp.com/attachments/850160961863942174/942176549921247283/the_summit.png)
+I'm Hybiks. I'm a Colombian music composer and 3d artist (not confident about coding so it isn't mentioned here). 
 
-> I'm Hybiks, a Colombian 3d artist, music composer, programmer (sometimes), student, and human (sometimes).
+> He/Him
 
-> [Twitter if you wanna follow ig](https://twitter.com/AniaelLC)
+> I've never taken one of those personality tests so idk 
 
-> [Music if you wanna listen](https://open.spotify.com/artist/3ZKuCYr2Xhonqj4mVowWKI)
+> I'm currently playing: [Death Stranding](https://store.steampowered.com/app/1850570/DEATH_STRANDING_DIRECTORS_CUT/), [Counter-Strike: Global Offensive](https://store.steampowered.com/app/730/CounterStrike_Global_Offensive/), [Blender (I know it's not a game but shut up)](https://store.steampowered.com/app/365670/Blender/)
 
-> [Not Github](https://github.com/Aniael)
+> My Discord tag is __Hybiks#8952__. Feel free to add me if you want <sub><sup>(unless you're that one person I really hate and love at the same time I don't think I quite want to talk to you yet)</sup></sub>.
+
+![it says](https://media.discordapp.net/attachments/943268694778322944/970164986649382952/under_construction.png)
+
+ #### // THIS IS TEMPORAL (probably) AND IS ONLY MEANT TO REPLACE MY [CURRENT DISCORD ABOUT ME](https://media.discordapp.net/attachments/850160961863942174/970158412820271174/unknown.png) // 
