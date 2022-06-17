@@ -12,4 +12,3 @@ I'm Hybiks. I'm a Colombian music composer and 3d artist (not confident about co
 
 ![it says](https://media.discordapp.net/attachments/943268694778322944/970164986649382952/under_construction.png)
 
- #### // THIS IS TEMPORAL (probably) AND IS ONLY MEANT TO REPLACE MY [CURRENT DISCORD ABOUT ME](https://media.discordapp.net/attachments/850160961863942174/970158412820271174/unknown.png) // 
