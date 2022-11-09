@@ -1,4 +1,4 @@
-I'm Hybiks. I'm a Colombian music composer and 3d artist (not confident about coding so it isn't mentioned here). 
+I'm Hybiks. I'm a Colombian music composer, 3d artist, and full-time human. 
 
 > He/Him
 
@@ -6,9 +6,7 @@ I'm Hybiks. I'm a Colombian music composer and 3d artist (not confident about co
 
 > <sub><sup>Asexual</sup></sub>
 
-> I'm currently playing: [Death Stranding](https://store.steampowered.com/app/1850570/DEATH_STRANDING_DIRECTORS_CUT/), [Counter-Strike: Global Offensive](https://store.steampowered.com/app/730/CounterStrike_Global_Offensive/), [Blender (I know it's not a game but shut up)](https://store.steampowered.com/app/365670/Blender/), [Destiny 2](https://store.steampowered.com/app/1085660/Destiny_2/).
-
-> __[REDACTED]__ on Discord (handing out my tag like that would be a bad idea).
+> I'm currently playing: [Yakuza Kiwami](https://store.steampowered.com/app/834530/Yakuza_Kiwami/), [Yakuza: Like A Dragon](https://store.steampowered.com/app/1235140/Yakuza_Like_a_Dragon/), [Blender (I know it's not a game but shut up)](https://store.steampowered.com/app/365670/Blender/), [Destiny 2](https://store.steampowered.com/app/1085660/Destiny_2/).
 
 ![it says](https://media.discordapp.net/attachments/943268694778322944/970164986649382952/under_construction.png)
 
